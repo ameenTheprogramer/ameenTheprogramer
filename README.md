@@ -5,8 +5,3 @@
   
 
 
-User : ui1vl1fe2ev3
-
-Pass : 43895546tt
-
-Cyberpunk 2077
